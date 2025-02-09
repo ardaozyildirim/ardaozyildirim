@@ -8,4 +8,3 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Network Related Topics
 - 💬 Ask me about how I started to my programming journey
 - 📫 How to reach me: ardaozyildirim2@gmail.com
-- 😄 Pronouns: he/him
